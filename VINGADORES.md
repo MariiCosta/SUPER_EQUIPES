@@ -1,7 +1,9 @@
-### 1 - [Vingadores]
+### 1 - Vingadores
 
-(https://github.com/MariiCosta/SUPER_EQUIPES/blob/main/falcao-noturno-vingadores-3-666x1024.jpg?raw=true)
+![](https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-7.jpg)
+
 
 **Membros atuais:** Homem de Ferro, Capitão América, Thor, Namor, Fênix, Valquíria, Capitã Marvel, Blade, Estigma e Falcão Noturno.
 
 A equipe é a referência em super-heroísmo da editora no momento. O atual QG é na **Montanha dos Vingadores**, dentro de um corpo abandonado de um Celestial. **O grupo enfrenta ameaças de grande escala pelo globo inteiro.**
+
