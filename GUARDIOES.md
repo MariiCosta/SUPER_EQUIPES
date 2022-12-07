@@ -1,4 +1,4 @@
-#### 2 - GUARDIÕES DA GALÁXIA
+### 2 - GUARDIÕES DA GALÁXIA
 
 ![](https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-7.jpg)
 
