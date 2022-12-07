@@ -1,6 +1,6 @@
 ### 1 - [Vingadores]
 
-(https://secureservercdn.net/198.71.233.187/eb6.f93.myftpupload.com/wp-content/uploads/2022/04/falcao-noturno-vingadores-3-666x1024.jpg)
+(https://github.com/MariiCosta/SUPER_EQUIPES/blob/main/falcao-noturno-vingadores-3-666x1024.jpg?raw=true)
 
 **Membros atuais:** Homem de Ferro, Capitão América, Thor, Namor, Fênix, Valquíria, Capitã Marvel, Blade, Estigma e Falcão Noturno.
 
